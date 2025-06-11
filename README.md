@@ -1,2 +1,2 @@
 # Project-hania
-A bug named hania who will fuck any windows system.
+A bug named hania who can destroy a windows system 
